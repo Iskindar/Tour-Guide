@@ -7,6 +7,6 @@
 ![guide2](http://www.iskindar.xyz/content/images/2018/08/guide2.png)
 ![guide3](http://www.iskindar.xyz/content/images/2018/08/guide3.png)
 ![guide4](http://www.iskindar.xyz/content/images/2018/08/guide4.png)
-![guide5](http://www.iskindar.xyz/content/images/2018/08/guide5.png)
+![guide5](http://www.iskindar.xyz/content/images/2018/08/guide5-1.png)
 ![guide6](http://www.iskindar.xyz/content/images/2018/08/guide6.png)
 
